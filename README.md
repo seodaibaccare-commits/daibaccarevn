@@ -18,7 +18,7 @@ Biểu hiện thường gặp là da đỏ, nổi mẩn, có thể gây đau rá
 
 ## Da bị hăm nên dùng gì?
 
-Khi gặp tình trạng này, nhiều ba mẹ băn khoăn [da bị hăm nên dùng gì](https://blooder.net/post/343330_h%C4%83m-da-la-tinh-tr%E1%BA%A1ng-ph%E1%BB%95-bi%E1%BA%BFn-%E1%BB%9F-tr%E1%BA%BB-nh%E1%BB%8F-osobenno-%E1%BB%9F-vung-m%E1%BA%B7c-ta-do-%E1%BA%A9m-%C6%B0%E1%BB%9Bt-va-ma-s.html) để cải thiện nhanh chóng mà vẫn an toàn. Câu trả lời là nên ưu tiên các sản phẩm làm sạch dịu nhẹ, có khả năng:
+Khi gặp tình trạng này, nhiều ba mẹ băn khoăn [da bị hăm nên dùng gì](https://flipboard.social/@daibaccarevn/116442839510399423) để cải thiện nhanh chóng mà vẫn an toàn. Câu trả lời là nên ưu tiên các sản phẩm làm sạch dịu nhẹ, có khả năng:
 
 - Làm sạch mồ hôi, vi khuẩn mà không gây kích ứng  
 - Làm dịu vùng da bị tổn thương  
